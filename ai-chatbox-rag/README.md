@@ -676,4 +676,4 @@ Nếu có vấn đề:
 
 **🎉 Chúc bạn sử dụng hệ thống thành công!**
 
-*Cập nhật: 2024*
+*Cập nhật: 2026*
